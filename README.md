@@ -1,0 +1,1 @@
+##Uninstall all qihoo(e.g. 360) apps in your phone
